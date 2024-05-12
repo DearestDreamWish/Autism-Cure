@@ -7,3 +7,6 @@ Autism gets developed, because of love misguidance.
 2. Create a mind palace with the created map.
 3. Use the mind palace to make the autist understand, as the wished design.
 4. Make a rutine, so the mind palace gets reinforced and updated.
+
+Read:
++ About behavioral endocrinology.
